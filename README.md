@@ -27,7 +27,7 @@ Nowadays, I have different, albeit similar, interests in games, such as:
 - _osu!_
 
 ### Music
-I've always enjoyed music, spanning over a multitude of different genres. I don't particularly have a personal favorite song, though I usually have several favorites at any given time. Currently, I've been really enjoying **_Epic: The Musical_**, which is a musical rendition of the Odyssey. I highly recommend giving it a listen if you have the time.  
+I've always enjoyed music, spanning over a multitude of different genres. I don't particularly have a personal favorite song, though I usually have several favorites at any given time. Currently, I've been really enjoying **_Epic: The Musical_**, which is a musical rendition of the Odyssey. I highly recommend giving it a listen if you have the time on youtube or spotify.  
 
 As for some of my current favorite songs, here they are!
 - _Kilby Girl_ - The Backseat Lovers
@@ -37,6 +37,7 @@ As for some of my current favorite songs, here they are!
 - _All In_ - Marino
 - _Kisaragi_ - Camellia (I don't listen to Camellia half as much as I used to, but he is one of my favorite artists for hype songs, and is an icon for rhythm games as a whole)
 
-## Sites I frequent
+## Sites I currently frequent
 - [YouTube](https://www.youtube.com) - There's always something to watch on there between all of the people that I'm subscribed to, and if there isn't, then there's always music that I can listen to instead.
-- [Warframe Fandom](https://warframe.fandom.com/wiki/WARFRAME_Wiki) - As there is a lot of content within the game, it's pretty useful to visit this site and its various subsites in order to find what I'm looking for at any given time.
+- [Warframe Fandom](https://warframe.fandom.com/wiki/WARFRAME_Wiki) - As there is a _lot_ of content within the game, it's pretty useful to visit this site and its various subsites in order to find what I'm looking for at any given time.
+- [Spotify](https://open.spotify.com) - Although I personally use the mobile app, I thought it important enough to put on here. It's the site that I primarily use to listen to music. I don't frequent very many websites otherwise.
